@@ -73,7 +73,7 @@ The portfolio includes:
 
 **Nitin Yadav**
 
-📧 Email: your-email@example.com
+📧 Email: ny2504745@gmail.com
 
 🔗 GitHub: https://github.com/Ny8948
 
